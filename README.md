@@ -1,1 +1,0 @@
-# ivelostmymind.github.io
